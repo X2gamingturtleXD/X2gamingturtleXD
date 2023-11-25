@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @X2gamingturtleXD
 - 👀 I’m interested in Hacking
 - 🌱 I’m currently learning Marine biology
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on a game
 - 📫 How to reach me Shawnyboiback@gmail.com
 
 <!---
